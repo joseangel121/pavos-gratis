@@ -29,5 +29,3 @@ ACCEDER AHORA LOS PAVOS GRATIS PARA SU CUENTA DE FORTNITE: https://hackall.live/
 
 Haga clic en él y simplemente introduzca el código en la casilla que aparece.
 Haga clic en Canjear y recibirá el artículo o pavo en su cuenta.
-Puedes acceder a Fortnite para confirmar que el proceso fue exitoso.
-Esta es toda la información que tiene hasta ahora. Recuerde actualizar este artículo si algo cambia.
